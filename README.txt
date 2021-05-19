@@ -1,2 +1,2 @@
-My CV online at at:
+My CV online at:
 https://ntxphuong.github.io/
